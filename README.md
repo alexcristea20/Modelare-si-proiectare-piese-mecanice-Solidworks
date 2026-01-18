@@ -1,0 +1,1 @@
+# Modelare-si-proiectare-piese-mecanice-Solidworks
